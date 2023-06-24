@@ -33,7 +33,7 @@ This tutorial outlines the prerequisites and installation of the open-source hel
 <h2>Installation Steps</h2>
 
 <p>
-<img src="[https://i.imgur.com/DJmEXEB.png](https://i.imgur.com/n8WV4Sh.png)" height="80%" width="80%" alt="Disk Sanitization Steps"/>
+<img src="https://i.imgur.com/n8WV4Sh.png" height="80%" width="80%" alt="Disk Sanitization Steps"/>
 </p>
 <p>
 It is very important to take care of the patient, the patient will be followed by the patient, but this time it will happen that there is a lot of work and pain. For to come to the smallest detail, no one should practice any kind of work unless he derives some benefit from it. Do not be angry with the pain in the reprimand in the pleasure he wants to be a hair from the pain in the hope that there is no breeding.
@@ -41,7 +41,7 @@ It is very important to take care of the patient, the patient will be followed b
 <br />
 
 <p>
-<img src="https://i.imgur.com/DJmEXEB.png" height="80%" width="80%" alt="Disk Sanitization Steps"/>
+<img src="https://i.imgur.com/n8WV4Sh.png" height="80%" width="80%" alt="Disk Sanitization Steps"/>
 </p>
 <p>
 It is very important to take care of the patient, the patient will be followed by the patient, but this time it will happen that there is a lot of work and pain. For to come to the smallest detail, no one should practice any kind of work unless he derives some benefit from it. Do not be angry with the pain in the reprimand in the pleasure he wants to be a hair from the pain in the hope that there is no breeding.
@@ -49,13 +49,13 @@ It is very important to take care of the patient, the patient will be followed b
 <br />
 
 <p>
-<img src="https://i.imgur.com/DJmEXEB.png" height="80%" width="80%" alt="Disk Sanitization Steps"/>
+<img src="https://i.imgur.com/n8WV4Sh.png" height="80%" width="80%" alt="Disk Sanitization Steps"/>
 </p>
 <p>
 It is very important to take care of the patient, the patient will be followed by the patient, but this time it will happen that there is a lot of work and pain. For to come to the smallest detail, no one should practice any kind of work unless he derives some benefit from it. Do not be angry with the pain in the reprimand in the pleasure he wants to be a hair from the pain in the hope that there is no breeding.
 </p>
 <br />
-<img src="https://i.imgur.com/DJmEXEB.png" height="80%" width="80%" alt="Disk Sanitization Steps"/>
+<img src="https://i.imgur.com/n8WV4Sh.png" height="80%" width="80%" alt="Disk Sanitization Steps"/>
 </p>
 <p>
 It is very important to take care of the patient, the patient will be followed by the patient, but this time it will happen that there is a lot of work and pain. For to come to the smallest detail, no one should practice any kind of work unless he derives some benefit from it. Do not be angry with the pain in the reprimand in the pleasure he wants to be a hair from the pain in the hope that there is no breeding.
